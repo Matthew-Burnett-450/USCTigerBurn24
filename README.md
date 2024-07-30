@@ -12,3 +12,6 @@ And then like this:
 Progress Pics:
 Legs!
 ![image](https://github.com/Matthew-Burnett-450/USCTigerBurn24/assets/123017451/a2d15a3c-b267-4220-bbf3-79f91123c50c)
+
+More Legs! and a Face!
+![image](https://github.com/user-attachments/assets/06e6d988-00d8-4461-8ff1-37b1a134d0f0)
