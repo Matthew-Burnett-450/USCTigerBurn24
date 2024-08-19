@@ -18,3 +18,6 @@ More Legs! and a Face!
 
 Body!
 ![image](https://github.com/user-attachments/assets/2d22a4f2-0215-486c-8220-58b78a0c634c)
+
+![image](https://github.com/user-attachments/assets/daa55358-8cde-43a0-a20e-fa430f449e4d)
+
