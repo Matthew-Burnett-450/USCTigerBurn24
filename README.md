@@ -21,3 +21,7 @@ Body!
 
 ![image](https://github.com/user-attachments/assets/daa55358-8cde-43a0-a20e-fa430f449e4d)
 
+Aftermath:
+<img width="1024" height="1007" alt="image" src="https://github.com/user-attachments/assets/77defa71-362d-470f-aed9-f259cb315f4f" />
+
+<img width="353" height="717" alt="image" src="https://github.com/user-attachments/assets/42273910-392d-4fcb-bccd-969cd11f4807" />
